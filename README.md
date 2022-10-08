@@ -20,7 +20,7 @@
 ㅤ
 ㅤ
 
-© Repo Copyright Holder : [𝐈𝐳𝐮𝐦𝐢 𝐊𝐮𝐧](https://t.me/MaximXRobot)
+© Repo Copyright Holder : [𝐘𝐮𝐮 𝐈𝐳𝐮𝐦𝐢](https://t.me/MaximXRobot)
 <p align="center">
 </p>
 
