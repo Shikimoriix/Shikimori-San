@@ -5,7 +5,7 @@
 
 ••• 𝐑𝐄𝐋𝐀𝐓𝐈𝐎𝐍𝐒𝐇𝐈𝐏𝐒 •••
 
-𝐘𝐮𝐮 𝐈𝐳𝐮𝐦𝐢 (𝐁𝐨𝐲𝐟𝐫𝐢𝐞𝐧𝐝)
+[𝐘𝐮𝐮 𝐈𝐳𝐮𝐦𝐢](https://t.me/MaximXRobot)(𝐁𝐨𝐲𝐟𝐫𝐢𝐞𝐧𝐝)
 ![𝐈𝐳𝐮𝐦𝐢](https://te.legra.ph/file/0c13eb00aaba21dd2f541.jpg)
 
 ![𝐒𝐡𝐢𝐤𝐢𝐦𝐨𝐫𝐢](https://te.legra.ph/file/ab871231497abd8c0c846.jpg)
