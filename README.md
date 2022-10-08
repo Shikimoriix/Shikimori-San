@@ -21,11 +21,6 @@
 ㅤ
 
 © Repo Copyright Holder : [𝐈𝐳𝐮𝐦𝐢 𝐊𝐮𝐧](https://t.me/MaximXRobot)
-
-ㅤ
-ㅤ
-ㅤ
-
 <p align="center">
 </p>
 
