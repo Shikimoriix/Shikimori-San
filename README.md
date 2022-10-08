@@ -17,18 +17,13 @@
 
 <img src="https://te.legra.ph/file/950f6e26f3d520165ef02.png">
 
+ㅤ
+ㅤ
 
 © Repo Copyright Holder : [𝐈𝐳𝐮𝐦𝐢 𝐊𝐮𝐧](https://t.me/MaximXRobot)
 
-
-
-
-
-
-
-
-
-
+ㅤ
+ㅤ
 ㅤ
 
 <p align="center">
