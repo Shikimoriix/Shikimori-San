@@ -20,7 +20,9 @@
 
 <img src="https://te.legra.ph/file/f43ebb2982a7a30dbeb66.jpg">
 
-••• 𝐓𝐫𝐢𝐯𝐢𝐚 •••
+ㅤ
+ㅤ
+♡━━━━━━━━ 𝐓𝐫𝐢𝐯𝐢𝐚 ━━━━━━━♡
 
 𝑺𝒉𝒆 𝒅𝒊𝒔𝒍𝒊𝒌𝒆𝒔 𝒔𝒘𝒆𝒆𝒕𝒔, 𝒕𝒉𝒐𝒖𝒈𝒉 𝒔𝒉𝒆 𝒂𝒄𝒄𝒆𝒑𝒕𝒔 𝒂𝒏𝒚𝒕𝒉𝒊𝒏𝒈 𝒎𝒂𝒅𝒆 𝒃𝒚 𝑰𝒛𝒖𝒎𝒊, 𝒊𝒏𝒄𝒍𝒖𝒅𝒊𝒏𝒈 𝒕𝒉𝒆 𝑺'𝒎𝒐𝒓𝒆𝒔 𝒉𝒆 𝒎𝒂𝒅𝒆.
 𝑯𝒆𝒓 𝒄𝒐𝒐𝒍 𝒔𝒊𝒅𝒆 𝒂𝒍𝒍𝒐𝒘𝒔 𝒉𝒆𝒓 𝒕𝒐 𝒂𝒄𝒄𝒖𝒓𝒂𝒕𝒆𝒍𝒚 𝒔𝒉𝒐𝒐𝒕 𝒉𝒆𝒓 𝒕𝒂𝒓𝒈𝒆𝒕𝒔.
@@ -28,11 +30,15 @@
 𝑺𝒉𝒆'𝒔 𝒂𝒇𝒓𝒂𝒊𝒅 𝒐𝒇 𝑻𝒊𝒈𝒆𝒓𝒔.
 𝑺𝒉𝒆 𝒉𝒂𝒔 𝒑𝒐𝒐𝒓 𝒆𝒚𝒆𝒔𝒊𝒈𝒉𝒕.
 
-••• 𝐖𝐚𝐥𝐥𝐩𝐚𝐩𝐞𝐫 •••
+<br>
+
+✶⊶⊷⊶⊷❍ 𝐖𝐚𝐥𝐥𝐩𝐚𝐩𝐞𝐫 ❍⊶⊷⊶⊷✶
+
+𝐄𝐝𝐢𝐭𝐨𝐫 : [@𝐢𝐤𝐱𝟕.𝐚](https://instagram.com/ikx7.a?)
 
 <img src="https://te.legra.ph/file/415ed3db4463d4b732794.png">
 
-<br/>
+<br>
 
 ### ⟞ 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 ⟝
 [![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/MaximXGroup)
