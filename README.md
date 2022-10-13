@@ -35,8 +35,6 @@
 ![4](https://te.legra.ph/file/415ed3db4463d4b732794.png)
 <br>
 
-⊶⊷⊶⊷❍ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 ❍⊶⊷⊶⊷
-
 <div align="center">
 
 
