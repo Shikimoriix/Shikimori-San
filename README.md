@@ -35,6 +35,8 @@
 𝑺𝒉𝒆'𝒔 𝒂𝒇𝒓𝒂𝒊𝒅 𝒐𝒇 𝑻𝒊𝒈𝒆𝒓𝒔.
 𝑺𝒉𝒆 𝒉𝒂𝒔 𝒑𝒐𝒐𝒓 𝒆𝒚𝒆𝒔𝒊𝒈𝒉𝒕.
 
+![4](https://github.com/AL3X-Github/Resources/blob/main/Photos/Izumi%20X%20Shikimori's.png)
+
 </details>
 <details>
 <summary><h3>𝐖𝐚𝐥𝐥𝐩𝐚𝐩𝐞𝐫</h3></summary>
