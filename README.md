@@ -54,7 +54,7 @@
 
 <h6>
 
-**Copyright 2022 :** [**Iᴢυɱi 和泉**](https://telegram.dog/MaximXRobot) 
+**𝖢𝗈𝗉𝗒𝗋𝗂𝗀𝗁𝗍 :** [**Iᴢυɱi 和泉**](https://telegram.dog/MaximXRobot) 
 
 </h6>
 </div>
