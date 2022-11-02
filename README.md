@@ -32,7 +32,7 @@
 
 ⊶⊷⊶⊷❍ 𝐖𝐚𝐥𝐥𝐩𝐚𝐩𝐞𝐫 ❍⊶⊷⊶⊷
 
-![4](https://te.legra.ph/file/415ed3db4463d4b732794.png)
+![Wallpaper](https://github.com/AL3X-Github/Resources/blob/main/Photos/Wallpaper.png)
 <br>
 
 <div align="center">
