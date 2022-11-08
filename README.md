@@ -45,7 +45,7 @@
 
 ![Wallpaper](https://github.com/AL3X-Github/Resources/blob/main/Photos/Wallpaper.png)
 
-> Wallpaper Credit : [@MaximXWallpapers](https://telegram.dog/MaximXWallaper)
+> Wallpaper Credit : [@MaximXWallpaper](https://telegram.dog/MaximXWallpaper)
 
 </details>
 <div align="center">
