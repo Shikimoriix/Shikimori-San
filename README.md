@@ -48,6 +48,11 @@
 > Wallpaper Credit : [@MaximXWallpaper](https://telegram.dog/MaximXWallpaper)
 
 </details>
+<details>
+<summary><h3>𝐅𝐚𝐧 𝐀𝐫𝐭</h3></summary>
+
+![Fan Art](https://github.com/Al3x-GitHub/Resources/blob/main/Photos/Art.png)
+
 <div align="center">
 
 [![Telegram](https://img.shields.io/badge/Group-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MaximXGroup) [![Telegram](https://img.shields.io/badge/Channel-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MaximXChannels)
