@@ -19,7 +19,8 @@ Characteristics
 | Birthday      | October 25th[^1] |
 | :-: | :-------------------------- |
 
-[^1]: [Official Twitter Account]((https://twitter.com/shikimori_off/status/1452288788412047361))
+[^1]: [Official Twitter Account](https://twitter.com/shikimori_off/status/1452288788412047361)
+
 </div>
 
 
