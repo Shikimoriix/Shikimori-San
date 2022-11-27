@@ -7,9 +7,9 @@ Information
 
 | Full Name      | Shikimori San |
 | :-: | :--------------------------|
-| **Japanese**   | 式守
-| **Rōmaji**      | Shikimori    | 
-| **Nicknames**   | Micchon, Mi-chan |
+| **Japanese**   | **式守**
+| **Rōmaji**      | **Shikimori**   | 
+| **Nicknames**   | **Micchon, Mi-chan** |
 
 </div>
 <div align="center"><b>
