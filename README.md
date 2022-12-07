@@ -79,7 +79,7 @@ Characteristics
 </details>
 <div align="center">
 
-[![Watch Now](https://custom-icon-badges.demolab.com/badge/Watch-Now-green.svg?logo=play&logoColor=white)](https://github.com/ikx7a/Shikimoris-Not-Just-A-Cutie/tree/main/Watch%20Now)
+[![Watch Now](https://custom-icon-badges.demolab.com/badge/Watch-Now-green.svg?logo=play&logoColor=white)](https://github.com/ikx7a/Shikimoris-Not-Just-A-Cutie)
 
 [![Telegram](https://img.shields.io/badge/Group-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MaximXGroup) [![Telegram](https://img.shields.io/badge/Channel-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MaximXChannels)
 
