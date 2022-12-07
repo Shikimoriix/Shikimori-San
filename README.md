@@ -1,5 +1,5 @@
 <h1 align="center">
-<b>𝐒𝐡𝐢𝐤𝐢𝐦𝐨𝐫𝐢 𝐒𝐚𝐧</b></h1>
+<b>「𝐒𝐡𝐢𝐤𝐢𝐦𝐨𝐫𝐢 𝐒𝐚𝐧」</b></h1>
 
 <div align="center"><b>
 Information 
