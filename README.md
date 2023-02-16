@@ -23,9 +23,7 @@ Characteristics
 
 </div>
 
-
-
-𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 (式しき守もり, 𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 𝒊𝒔 𝒕𝒉𝒆 𝒎𝒂𝒊𝒏 𝒇𝒆𝒎𝒂𝒍𝒆 𝒑𝒓𝒐𝒕𝒂𝒈𝒐𝒏𝒊𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 [𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊'𝒔 𝑵𝒐𝒕 𝑱𝒖𝒔𝒕 𝒂 𝑪𝒖𝒕𝒊𝒆 𝒔𝒆𝒓𝒊𝒆𝒔](https://zoro.to/shikimoris-not-just-a-cutie-17452?ref=search). 𝑺𝒉𝒆 𝒊𝒔 𝒕𝒉𝒆 𝒅𝒂𝒖𝒈𝒉𝒕𝒆𝒓 𝒐𝒇 𝑴𝒊𝒚𝒂𝒃𝒊 𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 𝒂𝒏𝒅 𝒕𝒉𝒆 𝒈𝒊𝒓𝒍𝒇𝒓𝒊𝒆𝒏𝒅 𝒐𝒇 [𝒀𝒖𝒖 𝑰𝒛𝒖𝒎𝒊](https://github.com/AL3X-Github/Yuu-Izumi).
+𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 (式しき守もり, 𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 𝒊𝒔 𝒕𝒉𝒆 𝒎𝒂𝒊𝒏 𝒇𝒆𝒎𝒂𝒍𝒆 𝒑𝒓𝒐𝒕𝒂𝒈𝒐𝒏𝒊𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 [𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊'𝒔 𝑵𝒐𝒕 𝑱𝒖𝒔𝒕 𝒂 𝑪𝒖𝒕𝒊𝒆 𝒔𝒆𝒓𝒊𝒆𝒔](https://zoro.to/shikimoris-not-just-a-cutie-17452?ref=search). 𝑺𝒉𝒆 𝒊𝒔 𝒕𝒉𝒆 𝒅𝒂𝒖𝒈𝒉𝒕𝒆𝒓 𝒐𝒇 𝑴𝒊𝒚𝒂𝒃𝒊 𝑺𝒉𝒊𝒌𝒊𝒎𝒐𝒓𝒊 𝒂𝒏𝒅 𝒕𝒉𝒆 𝒈𝒊𝒓𝒍𝒇𝒓𝒊𝒆𝒏𝒅 𝒐𝒇 [𝒀𝒖𝒖 𝑰𝒛𝒖𝒎𝒊](https://github.com/Shikimorix/Yuu-Izumi).
 
 <div align="center">
 
